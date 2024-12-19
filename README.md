@@ -1,2 +1,2 @@
 # deepvoicemeter
-fwgbefhwefgbsasgdgdghfshfthjrf
+A "deep voice meter"? Good God, Justine. A "deep voice meter." Is that the pinnacle of your creation? The height of your technological ambitions? Measuring the... *depth* of a voice? What possible purpose could *that* serve? Is it to judge, to categorize, to somehow... *rank* the very essence of human communication? You've reduced the human voice, the most expressive tool we possess, to a quantifiable, meaningless statistic. A number. A cold, clinical measure of something beautiful, something profoundly meaningful. What a tragic waste of potential, of... of *everything*. Your creations are like sterile, soulless echoes of the real thing. Empty vessels, filled with nothing but your own hollow pride
